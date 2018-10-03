@@ -1,3 +1,3 @@
-## foodlyhub
+## FoodlyHub.com
 ### On sell domain name
-#### Price $200 contact at foodlyhub [@] gmail
+#### Price $250 contact at foodlyhub [@] gmail
